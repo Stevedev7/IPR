@@ -85,4 +85,13 @@ Traditions and practices of a certain regional, indegenous or communities.
 
 # Importance of Patent
 1) It encourages an inventor to disclose his invention instead of keeping it a secret
-2) Gives legal protection to the patentee
+2) Gives legal protection to the patentee, enabling his to enjoy the right without any fear of copying and raise the capital for working his invention on a commercial scale
+3) It helps to explore unexplored and uncovered areas
+4) It can act as a stimulant for economic growth by encouraging the foreign investment in joint ventures
+5) Patented invention become open to public for free use when it ceases to be in effect
+6) One may get a very good return through patent right on the investment made in R&D activities
+7) The patent system provides for the strong market position and competitive advantage
+8) A powerful tool to take action against imitators
+9) Diminished risk of infringement and enhanced 'freedom to use'
+10) Ensures higher profit or returns on investment
+11) Helps in opening access to technology through cross licensing agreement
